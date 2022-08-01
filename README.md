@@ -1,5 +1,7 @@
 # 07-30-2022
 
+Next [Diary](https://aryanmangla23.github.io/07-31-2022/).   
+
 College Counselor meeting was productive! Finished Korsunsky's Mock Letter of Recc
 
 Counselor asked me about challenges I dealt, response, and effect. I felt really comfortable with him to talk about deep shit, even the toughest ones.
